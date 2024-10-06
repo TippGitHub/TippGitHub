@@ -1,13 +1,12 @@
 sup, its shinku on github
 
-im female, so she/her. 
+im female, so she/her (however you can also commit usage of they/them / it/its on me.)
 
 im 15, trans mtf + pan
 
-nationality is ukrainian
+nationality is ukrainian (yes, ukrainian, im a ukrainian refugee.)
 
 more additions to this file later
 <!---
-TippGitHub/TippGitHub is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+This file is basically my github bio.
 --->
