@@ -4,6 +4,8 @@ im female, so she/her (however you can also commit usage of they/them / it/its o
 
 im 15, trans mtf + pan
 
+also im taken
+
 nationality is ukrainian (yes, ukrainian, im a ukrainian refugee.)
 
 more additions to this file later
