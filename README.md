@@ -2,7 +2,7 @@ sup, its shinku on github
 
 im female, so she/her (however you can also commit usage of they/them / it/its on me.)
 
-im 15, trans mtf + pan
+im 16, trans mtf + pan
 
 also im taken
 
